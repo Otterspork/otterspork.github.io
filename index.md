@@ -1,4 +1,4 @@
-# Welcome to Maganimals!
+Updates weekly!
 
 ## May 9, 2020
 
