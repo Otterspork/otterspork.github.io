@@ -1,5 +1,9 @@
 Updates weekly!
 
+## June 13, 2020
+
+![Maganimals #6](comics/B9225069-F0EF-4E6A-943D-7F0B074C09BF.jpeg)
+
 ## June 6, 2020
 
 ![Maganimals #5](comics/95D5BD41-E034-4195-A373-083BC332F9E8.jpeg)
