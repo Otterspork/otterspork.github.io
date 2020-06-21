@@ -1,5 +1,9 @@
 Updates weekly!
 
+## June 21, 2020 (Father's Day Special)
+
+![Maganimals #8](comics/D9A3D316-E7FF-4EFA-BB44-BC9650961CC0.jpeg)
+
 ## June 20, 2020
 
 ![Maganimals #7](comics/9DE9C85C-6638-4FAF-899E-081D9DA078BA.jpeg)
