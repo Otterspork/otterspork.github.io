@@ -1,5 +1,9 @@
 Updates weekly!
 
+## July 20, 2020
+
+![Maganimals Q&A #1](comics/FB23F8E6-F73D-456D-AA37-8430B091AC62.jpeg)
+
 ## July 19, 2020 (Announcement!)
 
 ![Maganimals Q&A](comics/A641D97E-9487-4946-B42F-2F281598FCE2.jpeg)
