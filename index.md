@@ -1,5 +1,9 @@
 Updates weekly!
 
+## October 10, 2020
+
+![Maganimals #24](comics/CEC05600-8279-4BB2-9A50-3B27FC31FB2B.jpeg)
+
 ## October 3, 2020
 
 ![Maganimals #23](comics/5EA8776B-8257-41BD-A693-714487A39A90.jpeg)
