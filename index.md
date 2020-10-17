@@ -1,4 +1,4 @@
-Updates weekly!
+Updates every Saturday!
 
 ## October 17, 2020
 
