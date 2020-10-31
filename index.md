@@ -1,5 +1,9 @@
 Updates every Saturday!
 
+## October 31, 2020
+
+![Maganimals #25.3 - Halloween](comics/4FC21F8F-0432-40DB-A66D-81109D95F8AA.jpeg)
+
 ## October 24, 2020
 
 ![Maganimals #25.2 - Halloween](comics/01E0F486-4D62-4FC6-A4D2-068D80B54C5B.jpeg)
