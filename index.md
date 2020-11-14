@@ -1,5 +1,9 @@
 Updates every Saturday!
 
+## November 14, 2020
+
+![Maganimals #27](comics/0D3A407B-0BBA-4F66-A50A-11C243C5EC54.jpeg)
+
 ## November 7, 2020
 
 ![Maganimals #26](comics/A866C396-CFE0-4FA9-893E-A7B884FEF9D0.jpeg)
