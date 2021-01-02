@@ -1,5 +1,9 @@
 Updates every Saturday!
 
+## January 2, 2020 (Happy New Year!)
+
+![Maganimals #34](comics/8A156447-4874-474E-969C-FB36F4027BA0.jpeg)
+
 ## December 26, 2020 (Happy Holidays!)
 
 ![Maganimals #33](comics/7B592132-02E5-49EE-AC22-601BB041B24A.jpeg)
