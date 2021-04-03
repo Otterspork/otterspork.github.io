@@ -1,9 +1,5 @@
 Updates every Saturday!
 
-## April 3, 2021
-
-![Maganimals #47](comics/1A57643B-DE96-4300-A3D0-17225918EDD1.jpeg)
-
 ## March 27, 2021
 
 ![Maganimals #46](comics/1F3B6109-92EF-4D8E-A774-5C8E50EB25C3.jpeg)
