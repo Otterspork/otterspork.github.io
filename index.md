@@ -1,5 +1,9 @@
 Updates every Saturday!
 
+## May 15, 2021
+
+![Maganimals #54](comics/F7447072-43EB-4BB2-A0AD-14FD86342953.jpeg)
+
 ## May 9, 2021 (Maganimals One Year Anniversary!)
 
 ![Maganimals #53](comics/71178B6C-F785-4DB1-9015-2E7D27F9B27B.jpeg)
