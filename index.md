@@ -1,4 +1,8 @@
-Updates every Saturday!
+Thank you all for reading this!
+
+## August 7, 2021 (Farewell)
+
+![Maganimals Final Comic](comics/B0C50D4F-2C94-4E3D-ACBD-F5D8B085CAC5.jpeg)
 
 ## June 26, 2021
 
